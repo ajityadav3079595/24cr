@@ -1,0 +1,146 @@
+---
+title: "Phosphorus-Containing Epoxy Resin Market, Global Outlook and Forecast 2025-2032"
+datePublished: Fri Sep 12 2025 22:28:31 GMT+0000 (Coordinated Universal Time)
+cuid: cmfhesfj8000802l20rt864jv
+slug: phosphorus-containing-epoxy-resin-market-global-outlook-and-forecast-2025-2032-1-1-1
+
+---
+
+# Phosphorus-Containing Epoxy Resin Market, Global Outlook and Forecast 2025-2032
+
+<p><strong>MARKET INSIGHTS</strong></p><p>
+</p><p>Global phosphorus-containing epoxy resin market size was valued at <strong>USD 167 million in 2024</strong> and is expected to reach <strong>USD 250 million by 2032</strong>, growing at a <strong>CAGR of 6.1%</strong> during the forecast period.</p><div><b>Download FREE Sample of this Report @ 
+            <a href="https://www.24chemicalresearch.com/download-sample/290136/phosphorus-containing-epoxy-resin-market">
+            https://www.24chemicalresearch.com/download-sample/290136/phosphorus-containing-epoxy-resin-market</a></b></div><br><p>
+</p><p>Phosphorus-containing epoxy resins are advanced polymer materials that enhance the flame retardant properties of conventional epoxy resins through the incorporation of phosphorus-based additives. These specialized resins offer superior fire resistance characteristics including reduced smoke emission, low toxicity, and minimal heat release compared to traditional halogenated flame retardants. The technology is categorized into two primary types based on formulation methods: <strong>chemical reaction</strong> (where phosphorus is chemically bonded into the resin structure) and <strong>physical addition</strong> (where phosphorus compounds are physically blended).</p><p>
+</p><p>The market growth is driven by increasing safety regulations in electronics and construction sectors, where flame retardancy standards continue to tighten globally. Recent innovations in material science have expanded applications into high-performance sectors such as aerospace composites and advanced electronic packaging. Key players including <strong>Olin Corporation</strong> and <strong>Nan Ya Plastics</strong> are investing in production capacity expansions to meet the rising demand from Asia-Pacific markets, particularly for LED encapsulation and printed circuit board applications where thermal stability is critical.</p><p>
+<strong>MARKET DYNAMICS</strong></p><p>
+<strong>MARKET DRIVERS</strong></p><p>
+</p><p style="text-align:center"><strong>Stringent Fire Safety Regulations Propel Demand for Phosphorus-Containing Epoxy Resins</strong></p><p>
+</p><p>Global push for enhanced fire safety standards across industries is significantly driving the phosphorus-containing <strong>epoxy resin marke</strong>t. Regulatory bodies worldwide are implementing stricter flammability requirements, particularly in construction, electronics, and transportation sectors. The International Building Code (IBC) has recently updated its fire safety provisions, mandating higher flame retardant performance in building materials. This regulatory environment creates a substantial market opportunity, as phosphorus-containing epoxy resins demonstrate superior flame retardancy compared to conventional halogenated alternatives. Their ability to form protective char layers during combustion while emitting lower smoke and toxic gases makes them particularly valuable for applications requiring stringent safety compliance.</p><p>
+</p><p style="text-align:center"><strong>Expansion of Electronics Industry Accelerates Market Adoption</strong></p><p>
+</p><p>The booming electronics sector represents another major growth driver for phosphorus-containing epoxy resins. These materials are increasingly adopted for printed circuit boards (PCBs), semiconductor packaging, and electronic component encapsulation due to their excellent dielectric properties and flame retardancy. The rapid expansion of 5G infrastructure, IoT devices, and electric vehicles is creating unprecedented demand for advanced electronic materials. Notably, the global PCB market is projected to surpass $89 billion by 2027, with high-performance epoxy resins forming a critical component of this growth. Phosphorus-modified variants offer the added benefit of meeting RoHS and REACH compliance, making them particularly attractive to electronics manufacturers facing increasing environmental regulations.</p><p>
+</p><p style="text-align:center"><strong>Sustainability Trends Favor Phosphorus-Based Solutions</strong></p><p>
+</p><p>The industry-wide shift toward sustainable materials is accelerating adoption of phosphorus-containing epoxy resins. Unlike traditional halogenated flame retardants that face increasing regulatory restrictions due to environmental and health concerns, phosphorus-based alternatives offer a greener solution. Their favorable environmental profile, coupled with growing corporate sustainability commitments, positions them as the flame retardant of choice for forward-thinking manufacturers. Several major chemical companies have announced sustainability roadmaps prioritizing phosphorus-based solutions, signaling strong market momentum. Additionally, the development of bio-based phosphorus-containing epoxy resins through renewable feedstocks further enhances their appeal in environmentally-conscious markets.</p><p>
+<strong>MARKET RESTRAINTS</strong></p><p>
+</p><p style="text-align:center"><strong>High Production Costs Limit Market Penetration</strong></p><p>
+</p><p>While phosphorus-containing epoxy resins offer significant performance advantages, their higher production costs compared to conventional epoxy resins creates a notable market restraint. The specialized chemical processes required to incorporate phosphorus into the epoxy matrix, along with the premium pricing of phosphorus-based raw materials, result in finished products that can be 25-40% more expensive than standard alternatives. This cost differential becomes particularly challenging in price-sensitive applications and emerging markets where cost considerations often outweigh performance benefits. Manufacturers face the ongoing challenge of optimizing production processes and scaling operations to achieve better cost efficiencies without compromising product quality.</p><p>
+</p><p style="text-align:center"><strong>Technical Performance Trade-offs Present Adoption Challenges</strong></p><p>
+</p><p>The incorporation of phosphorus into epoxy resins, while improving flame retardancy, can sometimes negatively impact other material properties. Certain formulations may exhibit reduced thermal stability, mechanical strength, or processability compared to standard epoxy resins. These technical trade-offs require careful formulation adjustments and can limit adoption in applications where multiple high-performance characteristics are required simultaneously. The development of next-generation phosphorus-containing epoxy resins that maintain or enhance all critical performance parameters remains an active area of research and development within the industry.</p><p>
+</p><p style="text-align:center"><strong>Complex Regulatory Landscape Creates Compliance Challenges</strong></p><p>
+</p><p>The phosphorus-containing epoxy resin market operates within a complex and evolving regulatory environment. While these materials benefit from being alternatives to restricted halogenated flame retardants, they still face scrutiny regarding their environmental and health impacts. Different regions have varying regulations and standards for flame retardant materials, requiring manufacturers to navigate a patchwork of compliance requirements. Recent proposals to restrict certain organophosphorus compounds in the European Union demonstrate the potential regulatory risks facing some formulations. Companies must invest significantly in regulatory affairs capabilities and product testing to ensure ongoing market access across different jurisdictions.</p><p>
+<strong>MARKET OPPORTUNITIES</strong></p><p>
+</p><p style="text-align:center"><strong>Emerging Applications in Electric Vehicles Create New Growth Frontiers</strong></p><p>
+</p><p>The rapid growth of the electric vehicle industry presents a significant opportunity for phosphorus-containing epoxy resins. These materials are increasingly used in battery pack components, motor insulation, and charging infrastructure where fire safety is paramount. With global EV production expected to grow at a CAGR of over 20% through 2030, demand for specialized materials that meet stringent automotive safety standards will intensify. Several leading material suppliers have already announced partnerships with automotive OEMs to develop customized phosphorus-containing epoxy formulations tailored to EV applications, representing a major growth vector for the market.</p><p>
+</p><p style="text-align:center"><strong>Advanced Manufacturing Technologies Enable New Product Development</strong></p><p>
+</p><p>Innovations in polymer chemistry and manufacturing processes are creating opportunities to develop enhanced phosphorus-containing epoxy resins with superior performance characteristics. Recent advances in nanotechnology have enabled the development of nano-phosphorus additives that provide excellent flame retardancy at lower loading levels, minimizing the impact on other material properties. Similarly, novel curing mechanisms and hybrid formulations are expanding the processing window and application scope of these materials. Companies investing in R&amp;D to leverage these technological advancements are well-positioned to capture market share in high-value applications.</p><p>
+</p><p style="text-align:center"><strong>Asia-Pacific Market Expansion Offers Significant Growth Potential</strong></p><p>
+</p><p>The Asia-Pacific region, particularly China, India, and Southeast Asian countries, represents a major growth opportunity for phosphorus-containing epoxy resins. Rapid industrialization, urbanization, and strengthening fire safety regulations in these markets are driving demand for advanced flame retardant materials. Local production capacity expansions by both multinational corporations and domestic players indicate strong confidence in the region's growth prospects. The establishment of specialized application development centers and technical service capabilities in the region further underscores its strategic importance for market participants.</p><p>
+<strong>MARKET CHALLENGES</strong></p><p>
+</p><p style="text-align:center"><strong>Supply Chain Vulnerabilities Impact Market Stability</strong></p><p>
+</p><p>The phosphorus-containing epoxy resin market faces significant supply chain challenges that threaten stable operations. Raw material availability, particularly for specialized phosphorus compounds, remains constrained by limited global production capacity and geopolitical factors. Recent disruptions to key phosphorus supply chains have caused price volatility and allocation situations, forcing manufacturers to implement surcharges and seek alternative formulations. The market's heavy reliance on a few key suppliers for critical intermediates creates single-point vulnerabilities that can quickly ripple through the value chain.</p><p>
+</p><p style="text-align:center"><strong>Competition from Alternative Flame Retardant Technologies</strong></p><p>
+</p><p>Phosphorus-containing epoxy resins face intensifying competition from alternative flame retardant technologies. Silicon-based, nitrogen-based, and intumescent systems continue to evolve, offering different performance and cost profiles that may better suit certain applications. The development of inherently flame-retardant polymers that don't require additives presents another competitive threat. Market participants must continuously innovate to maintain their competitive position and demonstrate the unique value proposition of phosphorus-containing solutions across different application segments.</p><p>
+</p><p style="text-align:center"><strong>Customer Education and Specification Barriers</strong></p><p>
+</p><p>Despite their advantages, phosphorus-containing epoxy resins still face adoption barriers related to customer awareness and entrenched specifications. Many end-users maintain material specifications based on traditional epoxy formulations containing halogenated flame retardants. Changing these specifications requires extensive testing and qualification processes that can delay adoption. Additionally, some customers remain skeptical about the long-term performance of phosphorus-containing systems, particularly in demanding environments. Overcoming these barriers requires significant investment in customer education, technical support, and performance validation activities.</p><p>
+<strong>MARKET TRENDS</strong></p><p>
+<strong>Increasing Flame Retardant Regulations to Drive Market Growth</strong></p><p>
+</p><p>Global phosphorus-containing epoxy resin market continues to gain momentum, driven primarily by stringent safety regulations regarding fire protection across multiple industries. With epoxy resins traditionally being highly flammable, the incorporation of phosphorus-based flame retardants has become critical in applications ranging from electronic packaging to aerospace components. Recent data indicates that over <strong>35%</strong> of epoxy resin demand now comes from sectors requiring UL94 V-0 or equivalent flame retardancy ratings. Unlike halogenated alternatives, phosphorus-modified variants offer superior environmental profiles while meeting increasingly demanding performance standards. This regulatory push comes as construction codes in Europe and North America mandate higher fire resistance ratings for building materials, creating sustained demand through 2032.</p><p>
+<strong>Other Trends</strong></p><p>
+</p><p style="text-align:center"><strong>Electronics Miniaturization Demands Advanced Materials</strong></p><p>
+</p><p>The electronics industry's relentless push toward smaller, higher-performance devices is creating unprecedented demand for phosphorus-containing epoxy resins in encapsulation and printed circuit board applications. With smartphone production exceeding <strong>1.4 billion units annually</strong>, manufacturers require resins that combine flame retardancy with precise dielectric properties. Recent innovations in reactive phosphorus compounds now allow resin formulators to achieve CTI (Comparative Tracking Index) values above 600V while maintaining UL94 V-0 ratings—critical for high-density interconnects. Furthermore, the rise of 5G infrastructure and IoT devices has accelerated adoption, as these applications demand materials capable of withstanding higher operating temperatures without compromising fire safety.</p><p>
+<strong>Sustainable Alternatives Gain Traction in Green Building Initiatives</strong></p><p>
+</p><p>Environmental concerns are reshaping material selection across industries, with phosphorus-containing epoxy resins emerging as preferred alternatives to halogenated systems in sustainable construction. The global green building materials market, projected to grow at <strong>11% CAGR</strong> through 2030, increasingly specifies phosphorus-modified resins for structural adhesives and composite panels. Architects favor these materials not only for their fire performance but also for reduced smoke toxicity—a key factor in building evacuation scenarios. Recent developments include bio-based phosphorus compounds that enhance resin sustainability profiles without sacrificing mechanical properties. This aligns with corporate net-zero commitments, particularly in the European Union where the Construction Products Regulation (CPR) now classifies materials based on their environmental and fire safety performance.</p><p>
+<strong>COMPETITIVE LANDSCAPE</strong></p><p>
+<strong>Key Industry Players</strong></p><p>
+</p><p style="text-align:center"><strong>Market Leaders Expand Production Capacities to Address Rising Flame Retardant Demand</strong></p><p>
+</p><p>The phosphorus-containing epoxy resin market features a moderately fragmented competitive landscape, with <strong>Olin Corporation</strong> and <strong>Nan Ya Plastics</strong> emerging as dominant players holding approximately 25-30% combined market share in 2024. These companies maintain their leadership positions through continuous investments in production facilities and proprietary flame retardant technologies. Olin's recent expansion of its epoxy resin plant in Freeport, Texas, demonstrates its commitment to meeting growing North American demand.</p><p>
+</p><p><strong>Chinese manufacturers like Shandong Laiwu Runda</strong> and <strong>Guangdong Guangshan</strong> are rapidly gaining market share, particularly in Asia-Pacific regions, due to their cost-competitive production capabilities and strong domestic supply chains. Their growth is further propelled by increasing local demand for flame-retardant materials in electronics and construction sectors.</p><p>
+</p><p>Meanwhile, specialty chemical producers such as <strong>KUKDO Chemical</strong> and <strong>Jinangsu Yangnong Kumho Chemical</strong> are differentiating themselves through customized phosphorus-containing epoxy formulations targeting high-growth applications like aerospace composites and EV battery components. These companies are prioritizing R&amp;D collaborations with end-users to develop application-specific solutions.</p><p>
+</p><p>Recent strategic developments include <strong>Jinan Shengquan Group's</strong> acquisition of a German epoxy resin technology firm and <strong>Wells Advanced Materials'</strong> partnership with a major Japanese electronics manufacturer. Such moves are reshaping the competitive dynamics as companies position themselves for the anticipated 6.1% CAGR market growth through 2032.</p><p>
+<strong>List of Key Phosphorus-Containing Epoxy Resin Companies Profiled</strong></p><p>
+</p><p><strong>Olin Corporation (U.S.)</strong></p><p><strong>Nan Ya Plastics (Taiwan)</strong></p><p>Shandong Laiwu Runda New Material (China)</p><p>Guangdong Guangshan New Material (China)</p><p><strong>KUKDO Chemical (Kunshan) (China)</strong></p><p>Jiangsu Yangnong Kumho Chemical (China)</p><p>Epoxy Base Electronic Material (China)</p><p>Jinan Shengquan Group (China)</p><p>Wells Advanced Materials (Shanghai) (China)</p><p>Liaoyang Xinyu Chemical (China)</p><p>
+<strong>Segment Analysis:</strong></p><p>
+<strong>By Type</strong></p><p>
+</p><p><strong>Chemical Reaction Segment Dominates Due to Superior Flame Retardant Performance</strong></p><p>
+</p><p>The market is segmented based on type into:</p><p>
+</p><p>Chemical Reaction</p><p>Physical Addition</p><p>
+<strong>By Application</strong></p><p>
+</p><p><strong>Electronic Packaging Segment Leads Due to Increasing Demand for Flame-Retardant Materials in Electronics</strong></p><p>
+</p><p>The market is segmented based on application into:</p><p>
+</p><p>Coating</p><p>Adhesive</p><p>Electronic Packaging</p><p>Others</p><p>
+<strong>By End-User Industry</strong></p><p>
+</p><p><strong>Electronics and Electrical Sector Emerges as Key Consumer for Phosphorus-Containing Epoxy Resins</strong></p><p>
+</p><p>The market is segmented by end-user industry into:</p><p>
+</p><p>Electronics &amp; Electrical</p><p>Construction</p><p>Aerospace</p><p>Automotive</p><p>Others</p><p>
+<strong>Regional Analysis: Phosphorus-Containing Epoxy Resin Market</strong></p><p>
+</p><p><strong>North America</strong></p><p>
+</p><p>The North American market for phosphorus-containing epoxy resin is driven by stringent fire safety regulations and growing demand from the aerospace and electronics sectors. With the U.S. accounting for over 60% of the regional market share, major manufacturers are focusing on developing advanced flame-retardant solutions that comply with <strong>EPA and UL safety standards</strong>. The growth is further supported by substantial R&amp;D investments in specialty chemicals, projected to reach $12 billion annually by 2026. While the construction sector shows steady demand for flame-resistant coatings, the electronics industry remains the primary consumer due to miniaturization trends requiring high-performance encapsulation materials.</p><p>
+</p><p><strong>Europe</strong></p><p>
+</p><p>Stringent REACH regulations and the push toward halogen-free flame retardants position phosphorus-containing epoxy resins as a preferred solution across EU nations. Germany leads in consumption, particularly for automotive and renewable energy applications such as wind turbine composites. The recent EU ban on several brominated flame retardants has created a <strong>25% year-over-year demand increase</strong> for phosphorus alternatives in wire and cable applications. However, high production costs and complex formulation requirements continue to challenge widespread adoption among small-to-medium enterprises. Partnerships between academic institutions and chemical companies are accelerating innovation in reactive phosphorus technologies.</p><p>
+</p><p><strong>Asia-Pacific</strong></p><p>
+</p><p>As the fastest-growing regional market, Asia-Pacific contributes <strong>over 45% of global demand</strong>, led by China's booming electronics manufacturing sector. Local producers like Shandong Laiwu Runda dominate the supply chain with cost-competitive physical addition formulations, though quality inconsistency remains an industry concern. Japan and South Korea show stronger preference for high-purity reactive phosphorus resins for semiconductor packaging. While price sensitivity slows adoption in general industrial applications, government mandates in India and ASEAN countries are driving use in public infrastructure projects. The region benefits from integrated supply chains connecting epoxy feedstock producers to downstream manufacturers.</p><p>
+</p><p><strong>South America</strong></p><p>
+</p><p>Market growth in South America is constrained by limited domestic production capabilities and reliance on imported raw materials. Brazil represents the largest consumer base, primarily for construction adhesives and automotive composites, though economic instability has caused <strong>demand fluctuations of up to 15% annually</strong>. The lack of specialized testing facilities for flame retardant certification forces manufacturers to rely on international standards, increasing time-to-market. Recent trade agreements with Asian suppliers are improving material accessibility, while local universities are initiating research collaborations to develop bio-based phosphorus alternatives using regional feedstocks.</p><p>
+</p><p><strong>Middle East &amp; Africa</strong></p><p>
+</p><p>This emerging market shows divergent trends - while Gulf Cooperation Council countries invest heavily in flame-retardant materials for oil/gas and construction sectors, African nations face adoption barriers due to cost constraints. The UAE leads regional innovation with several flagship projects specifying phosphorus epoxy systems for high-rise fireproofing. Saudi Arabia's <strong>Vision 2030</strong> development plan is expected to boost demand for advanced composites in infrastructure. However, the lack of localized production and technical expertise results in premium pricing, limiting market penetration outside major urban centers. Partnerships with Turkish and Indian manufacturers are helping bridge the technology gap in key markets.</p><p>
+<strong>Report Scope</strong></p><p>
+</p><p>This report presents a comprehensive analysis of the global and regional markets for Phosphorus-Containing Epoxy Resin, covering the period from 2024 to 2032. It includes detailed insights into the current market status and outlook across various regions and countries, with specific focus on:</p><p>
+</p><p><strong>Sales, sales volume, and revenue forecasts</strong></p><p><strong>Detailed segmentation by type and application</strong></p><p>
+</p><p>In addition, the report offers in-depth profiles of key industry players, including:</p><p>
+</p><p>Company profiles</p><p>Product specifications</p><p>Production capacity and sales</p><p>Revenue, pricing, gross margins</p><p>Sales performance</p><p>
+</p><p>It further examines the competitive landscape, highlighting the major vendors and identifying the critical factors expected to challenge market growth.</p><p>
+</p><p>As part of this research, we surveyed Phosphorus-Containing Epoxy Resin manufacturers, suppliers, distributors, and industry experts. The survey covered various aspects, including:</p><p>
+</p><p>Revenue and demand trends</p><p>Product types and recent developments</p><p>Strategic plans and market drivers</p><p>Industry challenges, obstacles, and potential risks</p><p>
+<strong>FREQUENTLY ASKED QUESTIONS:</strong></p><p>
+<strong>What is the current market size of Global Phosphorus-Containing Epoxy Resin Market?</strong></p><p>
+</p><p>-&gt; Global Phosphorus-Containing Epoxy Resin market was valued at USD 167 million in 2024 and is expected to reach USD 250 million by 2032, growing at a CAGR of 6.1% during the forecast period.</p><p>
+<strong>Which key companies operate in Global Phosphorus-Containing Epoxy Resin Market?</strong></p><p>
+</p><p>-&gt; Key players include Olin, Nan Ya Plastics, Shandong Laiwu Runda New Material, Guangdong Guangshan New Material, KUKDO Chemical (Kunshan), Jiangsu Yangnong Kumho Chemical, Epoxy Base Electronic Material, Jinan Shengquan Group, Wells Advanced Materials (Shanghai), and Liaoyang Xinyu Chemical, among others.</p><p>
+<strong>What are the key growth drivers?</strong></p><p>
+</p><p>-&gt; Key growth drivers include increasing demand for flame-retardant materials in electronics and construction sectors, stringent fire safety regulations, and advantages of phosphorus-based flame retardants over halogenated alternatives.</p><p>
+<strong>Which region dominates the market?</strong></p><p>
+</p><p>-&gt; Asia-Pacific dominates the market, accounting for over 45% of global demand, driven by rapid industrialization and infrastructure development in China and India.</p><p>
+<strong>What are the emerging trends?</strong></p><p>
+</p><p>-&gt; Emerging trends include development of eco-friendly phosphorus-containing epoxy resins, nanotechnology integration for enhanced properties, and growing applications in aerospace and automotive sectors.</p>
+
+<div><b>Get the Complete Report & TOC @ 
+            <a href="https://www.24chemicalresearch.com/reports/290136/phosphorus-containing-epoxy-resin-market">
+            https://www.24chemicalresearch.com/reports/290136/phosphorus-containing-epoxy-resin-market</a></b></div><br>
+            <b>Table of Content:</b><p>Table of Contents<br />
+1 Research Methodology and Statistical Scope<br />
+1.1 Market Definition and Statistical Scope of Phosphorus-Containing Epoxy Resin<br />
+1.2 Key Market Segments<br />
+1.2.1 Phosphorus-Containing Epoxy Resin Segment by Type<br />
+1.2.2 Phosphorus-Containing Epoxy Resin Segment by Application<br />
+1.3 Methodology & Sources of Information<br />
+1.3.1 Research Methodology<br />
+1.3.2 Research Process<br />
+1.3.3 Market Breakdown and Data Triangulation<br />
+1.3.4 Base Year<br />
+1.3.5 Report Assumptions & Caveats<br />
+2 Phosphorus-Containing Epoxy Resin Market Overview<br />
+2.1 Global Market Overview<br />
+2.1.1 Global Phosphorus-Containing Epoxy Resin Market Size (M USD) Estimates and Forecasts (2019-2032)<br />
+2.1.2 Global Phosphorus-Containing Epoxy Resin Sales Estimates and Forecasts (2019-2032)<br />
+2.2 Market Segment Executive Summary<br />
+2.3 Global Market Size by Region<br />
+3 Phosphorus-Containing Epoxy Resin Market Competitive Landscape<br />
+3.1 Global Phosphorus-Containing Epoxy Resin Sales by Manufacturers (2019-2024)<br />
+3.2 Global Phosphorus-Containing Epoxy Resin Revenue Market Share by Manufacturers (2019-2024)<br />
+3.3 Phosphorus-Containing Epoxy Resin Market Share by Company Type (Tier 1, Tier 2, and Tier 3)<br />
+3.4 Global Phosphorus-Containing Epoxy Resin Average Price by Manufacturers (2019-2024)<br />
+3.5 Manufacturers Phosphorus-Containing Epoxy Resin Sales Sites, Area Served, Product Type<br />
+3.6 Phosphorus-Containing Epoxy Resin Market Competitive Situation and Trends<br />
+3.6.1 Phosphorus-Containing Epoxy Resin Market Concentration Rate<br />
+3.6.2 Global 5 and 10 Lar</p>
+
+<div><b>Get the Complete Report & TOC @ 
+            <a href="https://www.24chemicalresearch.com/reports/290136/phosphorus-containing-epoxy-resin-market">
+            https://www.24chemicalresearch.com/reports/290136/phosphorus-containing-epoxy-resin-market</a></b></div><br>
+
+<b>CONTACT US:</b><br>
+            203A, City Vista, Fountain Road, Kharadi, Pune, India - 411014<br>
+            International: +1(332) 2424 294<br>
+            Asia: +91 9169162030 <br><br>
+            Follow Us On LinkedIn: <a href="https://www.linkedin.com/company/24chemicalresearch/">24ChemicalResearch LinkedIn</a>
