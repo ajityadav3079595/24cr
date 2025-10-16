@@ -1,0 +1,142 @@
+---
+title: "Dialkyl Quaternary Ammonium Salt Market, Global Outlook and Forecast 2025-2032"
+datePublished: Thu Oct 16 2025 12:42:40 GMT+0000 (Coordinated Universal Time)
+cuid: cmgteu01c000002jvghl4a0n3
+slug: dialkyl-quaternary-ammonium-salt-market-global-outlook-and-forecast-2025-2032
+
+---
+
+# Dialkyl Quaternary Ammonium Salt Market, Global Outlook and Forecast 2025-2032
+
+<p><strong>MARKET INSIGHTS</strong></p><p>
+</p><p>Global dialkyl quaternary ammonium salt market was valued at <strong><strong>USD 40.4 million in 2024</strong> </strong>and is projected to reach <strong><strong>USD 50.6 million by 2032</strong>, </strong>growing at a <strong><strong>CAGR of 3.4%</strong></strong> during the forecast period.</p><div><b>Download FREE Sample of this Report @ 
+            <a href="https://www.24chemicalresearch.com/download-sample/206903/dialkyl-quaternary-ammonium-salt-market">
+            https://www.24chemicalresearch.com/download-sample/206903/dialkyl-quaternary-ammonium-salt-market</a></b></div><br><p>
+</p><p>Dialkyl quaternary ammonium salts are specialized cationic surfactants characterized by their poor water solubility but excellent compatibility with non-polar solvents. These compounds typically exist as colorless to light yellow liquids or pastes at room temperature, demonstrating remarkable chemical stability. Their versatile applications span across multiple industries, serving as key ingredients in fabric softeners, germicidal disinfectants, asphalt emulsifiers, antistatic agents, and various other specialty chemical formulations.</p><p>
+</p><p>The market growth is driven by increasing demand for effective surfactants in consumer products and industrial applications. While the fabric softener segment remains dominant, the disinfectant application is gaining traction due to heightened hygiene awareness post-pandemic. However, environmental concerns regarding biodegradability may pose challenges to market expansion. Leading manufacturers like Arkema, Nouryon Chemicals, and ABITEC are investing in product innovation to address these concerns while maintaining performance standards.</p><p>
+<strong>MARKET DYNAMICS</strong></p><p>
+<strong>MARKET DRIVERS</strong></p><p>
+</p><p style="text-align:center"><strong>Expanding Textile Industry to Fuel Demand for Dialkyl Quaternary Ammonium Salts as Fabric Softeners</strong></p><p>
+</p><p>Global textile industry, valued at over $1.5 trillion, continues to expand at nearly 4% annually, creating significant demand for fabric care chemicals. Dialkyl quaternary ammonium salts serve as highly effective cationic surfactants in fabric softeners due to their ability to neutralize static electricity and improve fabric softness. With rising disposable incomes in developing nations, consumers are increasingly prioritizing premium fabric care products. This trend is particularly strong in Asia-Pacific where fabric softener penetration rates have grown from 15% to 35% in the past decade. The compounds' ability to reduce fiber friction and provide antistatic properties makes them indispensable in modern textile care formulations.</p><p>
+</p><p style="text-align:center"><strong>Heightened Hygiene Awareness Post-Pandemic Accelerates Disinfectant Applications</strong></p><p>
+</p><p>Since the COVID-19 pandemic, global awareness about hygiene and sanitization has increased dramatically, with the disinfectant market projected to maintain 6% CAGR through 2030. Dialkyl quaternary ammonium salts demonstrate broad-spectrum antimicrobial activity against bacteria, viruses and fungi, making them essential components in hospital-grade disinfectants. Their chemical stability and non-corrosive nature allow for safe use on various surfaces including medical equipment. Recent studies have shown formulations containing these compounds achieve greater than 99.9% microbial reduction within 30 seconds of application. The healthcare sector's increasing focus on infection prevention is driving adoption across clinical environments, particularly in North America and Europe.</p><p>
+</p><p style="text-align:center"><strong>Infrastructure Development Boosts Asphalt Emulsifier Demand</strong></p><p>
+</p><p>Global infrastructure investments exceeding $3 trillion annually are creating substantial opportunities for asphalt modifier applications. Dialkyl quaternary ammonium salts serve as excellent asphalt emulsifiers that improve pavement durability and waterproofing capabilities. Their unique molecular structure enables effective binding between bitumen and aggregate materials. Major road construction projects across developing economies in Asia and Africa are increasingly adopting these advanced modifiers to extend pavement lifespan. The U.S. Infrastructure Investment and Jobs Act alone has allocated $110 billion for roads and bridges, promising sustained demand growth.</p><p>
+<strong>MARKET RESTRAINTS</strong></p><p>
+</p><p style="text-align:center"><strong>Environmental Regulations Limit Certain Applications</strong></p><p>
+</p><p>While dialkyl quaternary ammonium salts offer numerous benefits, environmental concerns about their persistence and potential toxicity have led to regulatory scrutiny. Certain formulations have been restricted in the European Union under REACH regulations due to bioaccumulation potential. Discharge limits for cationic surfactants in wastewater have become increasingly stringent, with permissible levels reduced by 40% in some jurisdictions since 2020. These regulations require manufacturers to invest significantly in wastewater treatment systems and alternative formulations, increasing production costs by 15-20%. Such regulatory pressures may constrain market growth in environmentally conscious regions.</p><p>
+</p><p style="text-align:center"><strong>Price Volatility of Raw Materials Impacts Profit Margins</strong></p><p>
+</p><p>The production of dialkyl quaternary ammonium salts relies heavily on petrochemical feedstocks, particularly fatty amines and alkyl halides. Global petrochemical prices have fluctuated dramatically, with some key raw materials experiencing 50-70% price swings in the past three years. Supply chain disruptions and energy cost variations continue to create margin pressure for manufacturers. Many producers have been forced to implement quarterly price adjustments to maintain profitability, making long-term contracts challenging. This volatility particularly affects small and medium enterprises in the market, potentially leading to industry consolidation.</p><p>
+</p><p style="text-align:center"><strong>Technical Limitations in Specific Applications</strong></p><p>
+</p><p>While highly versatile, dialkyl quaternary ammonium salts face technical constraints in certain applications. Their limited solubility in water necessitates specialized formulation techniques for aqueous systems. In high-pH environments, some variants demonstrate reduced efficacy as disinfectants. Thermal stability issues can arise in high-temperature applications like certain industrial processes. These limitations require ongoing R&amp;D investments to develop modified derivatives, adding to product development timelines and costs. The compounds' incompatibility with anionic surfactants also restricts formulation flexibility in some personal care products.</p><p>
+<strong>MARKET OPPORTUNITIES</strong></p><p>
+</p><p style="text-align:center"><strong>Development of Bio-based Variants to Capture Sustainability Demand</strong></p><p>
+</p><p>The growing bio-based chemicals market, projected to exceed $200 billion by 2030, presents significant opportunities for sustainable dialkyl quaternary ammonium salts. Leading manufacturers are investing in palm- and coconut oil-derived feedstocks to produce eco-friendly variants. These bio-based alternatives maintain performance while offering improved biodegradability profiles. Recent product launches featuring renewable carbon indexes above 90% have gained traction in Europe's green chemistry sector. The development of fully biodegradable formulations could open new applications in environmentally sensitive markets like marine antifouling coatings.</p><p>
+</p><p style="text-align:center"><strong>Emerging Applications in Agriculture Enhance Market Potential</strong></p><p>
+</p><p>Innovative agricultural applications are emerging as growth avenues for dialkyl quaternary ammonium salts. Their antimicrobial properties show promise as crop protection adjuvants that enhance pesticide efficacy while reducing required active ingredient volumes. Preliminary research indicates certain formulations can improve pesticide droplet retention on waxy leaf surfaces by up to 40%. The global agricultural adjuvant market's steady 5% annual growth provides a substantial opportunity. Additionally, these compounds' soil conditioning properties are being evaluated for improving water retention in arid region farming.</p><p>
+</p><p style="text-align:center"><strong>Advanced Manufacturing Technologies Enable Cost Optimization</strong></p><p>
+</p><p>The adoption of continuous flow chemistry in quaternary ammonium salt production is reducing manufacturing costs by 25-30% while improving product consistency. Automated process control systems allow for precise reaction monitoring, minimizing byproduct formation. Membrane separation technologies have demonstrated 40% energy savings in purification steps compared to traditional methods. These process innovations help manufacturers maintain competitiveness despite raw material volatility. Investments in Industry 4.0 technologies are expected to accelerate, with leading Asian producers particularly active in modernization initiatives.</p><p>
+<strong>MARKET CHALLENGES</strong></p><p>
+</p><p style="text-align:center"><strong>Intense Competition from Alternative Technologies</strong></p><p>
+</p><p>Dialkyl quaternary ammonium salts face increasing competition from newer antimicrobial agents and softener technologies. Silicone-based fabric conditioners have gained nearly 15% market share in premium segments. Non-quaternary disinfectants utilizing hydrogen peroxide or thymol formulations are being favored in some healthcare applications. While traditional quats maintain cost advantages, performance improvements in alternatives continue to erode market position. Manufacturers must invest in application-specific performance enhancements to defend market share across key segments.</p><p>
+</p><p style="text-align:center"><strong>Technical Expertise Shortage Constrains Innovation</strong></p><p>
+</p><p>The specialized nature of quaternary ammonium chemistry requires highly trained formulation chemists and process engineers. The global specialty chemicals sector faces a growing talent gap, with 40% of companies reporting difficulties in recruiting qualified personnel. This skills shortage particularly affects small manufacturers attempting to diversify product portfolios. The complex synthesis procedures and stringent quality requirements demand experienced technicians that command premium salaries. Workforce development programs remain critical for sustaining innovation capacity across the industry.</p><p>
+</p><p style="text-align:center"><strong>Safety Concerns in Handling and Transportation</strong></p><p>
+</p><p>As cationic surfactants, concentrated dialkyl quaternary ammonium salt solutions require careful handling due to potential skin and eye irritation. Recent regulatory actions have classified certain formulations as hazardous materials for transport, increasing logistics costs by 10-15%. Specialized storage facilities with secondary containment systems add to capital expenditure requirements. These safety considerations require comprehensive employee training programs and may limit market access for producers lacking robust safety management systems. Ongoing formulation refinements aim to mitigate these handling challenges while maintaining performance characteristics.</p><p>
+<strong>MARKET TRENDS</strong></p><p>
+<strong>Growing Demand for Fabric Softeners Drives Market Expansion</strong></p><p>
+</p><p>The dialkyl quaternary ammonium salt market is experiencing significant growth, largely propelled by the increasing demand for fabric softeners in both household and industrial laundry applications. These compounds serve as <strong>cationic surfactants</strong>, enhancing fabric softness while reducing static cling. With global laundry care product sales exceeding $85 billion annually, manufacturers are increasingly formulating premium fabric care solutions that leverage the superior conditioning properties of dialkyl quaternary ammonium salts. The Asia-Pacific region, particularly China and India, has emerged as a high-growth market with textile industry expansion driving compound annual growth rates above 4.5% for these specialty chemicals.</p><p>
+<strong>Other Trends</strong></p><p>
+</p><p style="text-align:center"><strong>Antimicrobial Applications in Healthcare</strong></p><p>
+</p><p>Healthcare sector requirements for effective disinfectants and sanitizers are creating new opportunities for dialkyl quaternary ammonium salts. These compounds demonstrate broad-spectrum antimicrobial activity against bacteria, viruses, and fungi, making them ideal for hospital-grade disinfectants. During the COVID-19 pandemic, disinfectant formulations containing these compounds saw demand surge by over 30% in North America and Europe. The ongoing focus on infection control in medical facilities continues to drive adoption, with innovative formulations now being developed for long-lasting surface protection.</p><p>
+<strong><strong>Industrial Applications Fuel Market Diversification</strong></strong></p><p>
+</p><p>Beyond traditional uses, dialkyl quaternary ammonium salts are finding new applications in industrial processes. The compounds serve as effective asphalt emulsifiers in road construction, where they help improve the bonding of asphalt to aggregates. With global infrastructure investments projected to reach $3.5 trillion annually by 2030, this application segment represents a significant growth vector. Additionally, the oil and gas industry utilizes these compounds as corrosion inhibitors and biocides in drilling fluids, while the personal care sector incorporates them into hair conditioners and cosmetic formulations for their antistatic properties.</p><p>
+</p><p>Manufacturers are responding to these diverse applications through product innovation and capacity expansions. Leading producers have recently introduced high-purity liquid formulations with improved solubility profiles, addressing the needs of specialty chemical applications. With environmental concerns growing, development of bio-based variants has emerged as a key research focus area, potentially opening new market segments in eco-conscious consumer products.</p><p>
+<strong><strong>COMPETITIVE LANDSCAPE</strong></strong></p><p>
+<strong><strong>Key Industry Players</strong></strong></p><p>
+</p><p style="text-align:center"><strong><strong>Market Leaders Focus on Capacity Expansion and Vertical Integration</strong></strong></p><p>
+</p><p>Global Dialkyl Quaternary Ammonium Salt market features a moderately concentrated competitive landscape, with established chemical manufacturers competing alongside specialized producers. Arkema emerges as a dominant player, leveraging its multinational production facilities and diversified chemical portfolio to maintain approximately 18% revenue share in 2024. The company's recent investments in Asian manufacturing plants have significantly strengthened its market position.</p><p>
+</p><p>SACHEM and Nouryon Chemicals collectively account for nearly 25% market share, with their technological expertise in specialty chemicals enabling customized product formulations. Both companies have been actively pursuing strategic partnerships with downstream application industries to secure long-term supply contracts.</p><p>
+</p><p>Meanwhile, Chinese manufacturers like Zibo Tenghui Oleochemical and Guangrao County Kerui Biotechnology are gaining traction through cost competitiveness and regional distribution networks. These players are increasingly focusing on R&amp;D investments to develop environmentally friendly variants, responding to tightening regulatory standards in Europe and North America.</p><p>
+</p><p>The market also sees competition intensifying as mid-size players such as ABITEC and Acme Sujan Chemicals expand their production capacities. Their growth strategies include vertical integration with raw material suppliers and geographical expansion into emerging markets in Southeast Asia and Latin America.</p><p>
+<strong><strong>List of Key Dialkyl Quaternary Ammonium Salt Manufacturers</strong></strong></p><p>
+</p><p><strong>Arkema (France)</strong></p><p>Acme Sujan Chemicals (India)</p><p><strong>ABITEC (U.S.)</strong></p><p><strong>SACHEM (U.S.)</strong></p><p>Nouryon Chemicals (Boxing) (China)</p><p>Zibo Tenghui Oleochemical (China)</p><p>Guangrao County Kerui Biotechnology (China)</p><p>Wanyin (Hebei) New Material Technology (China)</p><p>Zibo Yingzhao Chemical Technology (China)</p><p>Anhui Siyoupu Chemical Technology (China)</p><p>
+<strong><strong>Segment Analysis:</strong></strong></p><p>
+<strong><strong>By Type</strong></strong></p><p>
+</p><p><strong><strong>Liquid Segment Dominates Due to Higher Solubility in Industrial Applications</strong></strong></p><p>
+</p><p><strong>The market is segmented based on type into:</strong></p><p>
+</p><p>Liquid</p><p>Paste</p><p>
+<strong><strong>By Application</strong></strong></p><p>
+</p><p><strong><strong>Fabric Softener Segment Leads Driven by Consumer Demand for Enhanced Fabric Properties</strong></strong></p><p>
+</p><p><strong>The market is segmented based on application into:</strong></p><p>
+</p><p>Fabric Softener</p><p>Germicidal Disinfectant</p><p>Asphalt Emulsifier</p><p>Antistatic Agent</p><p>Others</p><p>
+<strong><strong>Regional Analysis: Dialkyl Quaternary Ammonium Salt Market</strong></strong></p><p>
+</p><p><strong><strong>North America</strong></strong></p><p>
+</p><p>The North American market for dialkyl quaternary ammonium salts is characterized by stringent regulatory oversight and advanced applications in industrial and consumer sectors. The U.S. Food and Drug Administration (FDA) and Environmental Protection Agency (EPA) have established clear guidelines for the use of these compounds, particularly in disinfectants and fabric care products where they function as active ingredients. The region's mature chemical manufacturing sector, combined with high awareness of antimicrobial hygiene post-pandemic, sustains steady demand. However, environmental concerns about bioaccumulation potential are prompting research into greener alternatives, creating a dynamic innovation landscape. Major manufacturers are focusing on bio-based quaternary ammonium compounds to align with sustainability trends while maintaining efficacy in applications like hospital-grade disinfectants and textile softeners.</p><p>
+</p><p><strong><strong>Europe</strong></strong></p><p>
+</p><p>Europe maintains a leadership position in eco-conscious formulation development, with REACH regulations driving innovation in dialkyl quaternary ammonium salt applications. The region shows particular strength in fabric softener and industrial biocidal formulations, where German and French chemical companies lead in patent filings for low-environmental-impact variants. A recent shift toward concentrated liquid formulations (reducing transport emissions) and elimination of animal-derived tallow-based feedstocks reflects the circular economy priorities. The biocidal products regulation (BPR) approval process creates barriers for new market entrants but ensures high product standards. Eastern European markets are emerging as cost-competitive production hubs, though still dependent on Western European R&amp;D capabilities for advanced formulations.</p><p>
+</p><p><strong><strong>Asia-Pacific</strong></strong></p><p>
+</p><p>As the largest volume consumer globally, the Asia-Pacific region is propelled by China's massive textile industry and India's growing personal care sector. Local production capacity for dimethyl dioctyl ammonium chloride and related compounds has expanded significantly, with Chinese manufacturers now supplying over 60% of global fabric softener active ingredients. Price sensitivity drives preference for cost-effective paste formulations, though Japanese and South Korean markets demonstrate premiumization trends in disinfectant and cosmetic applications. Regulatory frameworks vary widely—while Australia follows strict biocidal product regulations similar to Europe, Southeast Asian nations maintain more lenient standards. The recent pandemic accelerated adoption in household disinfectants, creating lasting demand spikes across urban centers.</p><p>
+</p><p><strong><strong>South America</strong></strong></p><p>
+</p><p>Market development in South America faces infrastructure limitations despite growing awareness of quaternary ammonium compounds' benefits. Brazil dominates regional consumption, particularly in agricultural sanitizers and textile processing aids, where these salts serve as cost-effective alternatives to more expensive specialty chemicals. Currency volatility impacts raw material imports, prompting regional producers to use locally sourced vegetable-oil derived fatty acids. The lack of harmonized regulations across Mercosur countries creates formulation challenges for multinational suppliers. However, the expanding middle class is driving demand for premium fabric care products, creating opportunities for innovative softener compositions.</p><p>
+</p><p><strong><strong>Middle East &amp; Africa</strong></strong></p><p>
+</p><p>This region presents a nascent but high-potential market, with growth concentrated in GCC countries and South Africa. The dialkyl quaternary ammonium salt market benefits from increasing healthcare expenditure and construction activity—the latter driving demand for asphalt emulsifiers. Religious tourism in Saudi Arabia and UAE has elevated hygiene standards, supporting disinfectant applications. Local production remains limited due to petrochemical feedstock dependencies, though some North African countries are developing manufacturing capabilities. Market education remains critical, as many end-users still equate disinfectant efficacy solely with chlorine-based products. Water scarcity concerns may drive future innovation in low-water formulations.</p><p>
+<strong><strong>Report Scope</strong></strong></p><p>
+</p><p>This report presents a comprehensive analysis of the global and regional markets for Dialkyl Quaternary Ammonium Salt, covering the period from 2024 to 2032. It includes detailed insights into the current market status and outlook across various regions and countries, with specific focus on:</p><p>
+</p><p><strong><strong>Sales, sales volume, and revenue forecasts</strong></strong></p><p><strong><strong>Detailed segmentation by type and application</strong></strong></p><p>
+</p><p>In addition, the report offers in-depth profiles of key industry players, including:</p><p>
+</p><p>Company profiles</p><p>Product specifications</p><p>Production capacity and sales</p><p>Revenue, pricing, gross margins</p><p>Sales performance</p><p>
+</p><p>It further examines the competitive landscape, highlighting the major vendors and identifying the critical factors expected to challenge market growth.</p><p>
+</p><p>As part of this research, we surveyed Dialkyl Quaternary Ammonium Salt manufacturers, suppliers, distributors, and industry experts. The survey covered various aspects, including:</p><p>
+</p><p>Revenue and demand trends</p><p>Product types and recent developments</p><p>Strategic plans and market drivers</p><p>Industry challenges, obstacles, and potential risks</p><p>
+<strong><strong>FREQUENTLY ASKED QUESTIONS:</strong></strong></p><p>
+<strong><strong>What is the current market size of Global Dialkyl Quaternary Ammonium Salt Market?</strong></strong></p><p>
+</p><p>-&gt; Global Dialkyl Quaternary Ammonium Salt market was valued at USD 40.4 million in 2024 and is projected to reach USD 50.6 million by 2032, growing at a CAGR of 3.4% during the forecast period.</p><p>
+<strong><strong>Which key companies operate in Global Dialkyl Quaternary Ammonium Salt Market?</strong></strong></p><p>
+</p><p>-&gt; Key players include Arkema, Acme Sujan Chemicals, ABITEC, SACHEM, Nouryon Chemicals (Boxing), Zibo Tenghui Oleochemical, Guangrao County Kerui Biotechnology, Wanyin (Hebei) New Material Technology, Zibo Yingzhao Chemical Technology, and Anhui Siyoupu Chemical Technology, among others. In 2024, the global top five players accounted for a significant market share.</p><p>
+<strong><strong>What are the key growth drivers?</strong></strong></p><p>
+</p><p>-&gt; Key growth drivers include rising demand from textile and personal care industries, increasing applications in disinfectants, and growth in infrastructure development driving asphalt emulsifier demand.</p><p>
+<strong><strong>Which region dominates the market?</strong></strong></p><p>
+</p><p>-&gt; Asia-Pacific leads the market due to high production in China and growing textile industries in India and Southeast Asia. North America and Europe also hold substantial shares.</p><p>
+<strong><strong>What are the emerging trends?</strong></strong></p><p>
+</p><p>-&gt; Emerging trends include development of bio-based quaternary ammonium compounds, increased R&amp;D in antimicrobial applications, and sustainable production processes to meet environmental regulations.</p>
+
+<div><b>Get the Complete Report & TOC @ 
+            <a href="https://www.24chemicalresearch.com/reports/206903/dialkyl-quaternary-ammonium-salt-market">
+            https://www.24chemicalresearch.com/reports/206903/dialkyl-quaternary-ammonium-salt-market</a></b></div><br>
+            <b>Table of Content:</b><p>1 Introduction to Research & Analysis Reports<br />
+    1.1 Dialkyl Quaternary Ammonium Salt Market Definition<br />
+    1.2 Market Segments<br />
+        1.2.1 Market by Type<br />
+        1.2.2 Market by Application<br />
+    1.3 Global Dialkyl Quaternary Ammonium Salt Market Overview<br />
+    1.4 Features & Benefits of This Report<br />
+    1.5 Methodology & Sources of Information<br />
+        1.5.1 Research Methodology<br />
+        1.5.2 Research Process<br />
+        1.5.3 Base Year<br />
+        1.5.4 Report Assumptions & Caveats<br />
+2 Global Dialkyl Quaternary Ammonium Salt Overall Market Size<br />
+    2.1 Global Dialkyl Quaternary Ammonium Salt Market Size: 2022 VS 2029<br />
+    2.2 Global Dialkyl Quaternary Ammonium Salt Revenue, Prospects & Forecasts: 2018-2029<br />
+    2.3 Global Dialkyl Quaternary Ammonium Salt Sales: 2018-2029<br />
+3 Company Landscape<br />
+    3.1 Top Dialkyl Quaternary Ammonium Salt Players in Global Market<br />
+    3.2 Top Global Dialkyl Quaternary Ammonium Salt Companies Ranked by Revenue<br />
+    3.3 Global Dialkyl Quaternary Ammonium Salt Revenue by Companies<br />
+    3.4 Global Dialkyl Quaternary Ammonium Salt Sales by Companies<br />
+    3.5 Global Dialkyl Quaternary Ammonium Salt Price by Manufacturer (2018-2023)<br />
+    3.6 Top 3 and Top 5 Dialkyl Quaternary Ammonium Salt Companies in Global Market, by Revenue in 2022<br />
+    3.7 Global Manufacturers Dialkyl Quaternary Ammonium Salt Product Type<br />
+    3.8 Tier 1, Tier 2 and Tier 3 Dialkyl Quaternary Ammonium Salt Players in Global Market<br />
+        3.8.1 List of Global Tier 1 Dialkyl Qu</p>
+
+<div><b>Get the Complete Report & TOC @ 
+            <a href="https://www.24chemicalresearch.com/reports/206903/dialkyl-quaternary-ammonium-salt-market">
+            https://www.24chemicalresearch.com/reports/206903/dialkyl-quaternary-ammonium-salt-market</a></b></div><br>
+
+<b>CONTACT US:</b><br>
+            203A, City Vista, Fountain Road, Kharadi, Pune, India - 411014<br>
+            International: +1(332) 2424 294<br>
+            Asia: +91 9169162030 <br><br>
+            Follow Us On LinkedIn: <a href="https://www.linkedin.com/company/24chemicalresearch/">24ChemicalResearch LinkedIn</a>
